@@ -8,7 +8,7 @@
 
 - 📝 I regulary write articles on [https://medium.com/@alexpagnotta](https://medium.com/@alexpagnotta)
 
-- 📫 How to reach me **alex.pagnotta@outlook.it**
+- 📫 How to reach me **ap.alex.pagnotta@gmail.com**
 
 - 📄 Know about my experiences [https://www.alexpagnotta.com/curriculum.pdf](https://www.alexpagnotta.com/curriculum.pdf)
 
